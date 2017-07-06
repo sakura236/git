@@ -1,1 +1,1 @@
-Edward Vessalius
+Duke Edward Vessalius
