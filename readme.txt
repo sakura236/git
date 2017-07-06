@@ -1,2 +1,2 @@
 Duke Edward Vessalius
-Son of Philips
+The one who become the king <3
